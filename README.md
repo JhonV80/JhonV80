@@ -1,9 +1,6 @@
 ## Opa, meu nome é _João_ 👋
 
-<!--
-**JhonV80/JhonV80** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
+Conheça um pouco mais sobre mim:
 
 - Eu gosto de jogar video game 🎮
 - Gosto de jogar bola ⚽
