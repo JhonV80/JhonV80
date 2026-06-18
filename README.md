@@ -8,4 +8,6 @@ Conheça um pouco mais sobre mim:
 - Gosto de andar de bike 🚴‍♂️
 - Gosto de ouvir música 🎵
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/cc120371-4a01-4ac3-9e63-135b523af267" />
+
+
 ![](https://media.tenor.com/4tUqgtEeeKIAAAAd/grrr-angry.gif)
