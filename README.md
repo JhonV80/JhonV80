@@ -12,4 +12,4 @@ Conheça um pouco mais sobre mim:
 
 ![](https://media.tenor.com/bTzaSMIALw0AAAAd/pigeon-doctor.gif)
 
-![](https://tenor.com/pt-BR/view/neymar-gif-27009028)
+![](https://media.tenor.com/COM78THbePQAAAAd/neymar.gif)
