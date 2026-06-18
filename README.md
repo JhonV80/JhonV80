@@ -11,3 +11,4 @@ Conheça um pouco mais sobre mim:
 
 
 ![](https://media.tenor.com/4tUqgtEeeKIAAAAd/grrr-angry.gif)
+![](https://media.tenor.com/bTzaSMIALw0AAAAd/pigeon-doctor.gif)
